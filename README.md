@@ -1,0 +1,1 @@
+# office-legacy-removal-and-m365-shortcuts
